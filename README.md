@@ -1,2 +1,0 @@
-# wuguilsl.github.io
-test
